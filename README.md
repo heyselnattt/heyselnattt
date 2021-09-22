@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @heyselnattt
+- 👀 I’m interested in multimedia arts and other designing stuffs especially the digital ones.
+- 🌱 I’m currently at my 3rd year of being an Information Technology student at Pamantasan ng Lungsod ng Valenzuela.
+- 📫 How to reach me: hazelannemejias.edu@gmail.com
